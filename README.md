@@ -1,5 +1,11 @@
 ## Hi there 👋
 
+
+
+![ezgif-3-b4c0b8b659](https://github.com/Articty7/Articty7/assets/151902667/14dbb0cf-6d21-40ae-a18d-a8a47150d2e7)
+
+
+
 <!--
 **Articty7/Articty7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
